@@ -4,7 +4,7 @@ Claude response :- https://claude.ai/share/275f20b9-d3b3-45bc-aaff-37e2e161d840
 
 Entrixa File Link :- https://sendgb.com/s6d9xQgniGJ
 
-CRM File :- https://fromsmash.com/CRM-file-0506
+CRM File :- https://fromsmash.com/crm-update-file
 
 Claude Response for CRM :- https://claude.ai/share/b454bae0-2762-4cc9-b886-301a30a18570
 
